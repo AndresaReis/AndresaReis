@@ -17,4 +17,4 @@
 Encantada por tecnologia e sempre disposta a novos desafios.😉
 
 
-### Ei, aproveita que está aqui e dá uma olhadinha nos meus repositorio!!! 🤗
+### Ei, aproveita que está aqui e dá uma olhadinha nos meus repositorios!!! 🤗
